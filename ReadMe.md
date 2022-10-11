@@ -1,1 +1,1 @@
-My Learning sexpericence has been started on GitHub
+My Learning expericence has been started on GitHub
